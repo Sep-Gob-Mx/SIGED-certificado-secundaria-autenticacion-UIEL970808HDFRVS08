@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-UIEL970808HDFRVS08
+UIEL970808HDFRVS08
